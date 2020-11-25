@@ -1,1 +1,2 @@
-# Paneer-Butter-Masala1
+# Paneer-Butter-Masala
+Paneer butter masaala (PBM), is a rich, creamy, Indian curry. It is usually eaten with Roti/ Butter Naan/ Rice/ Chappati/ Paratha or Jeera Rice. It is also known as Butter Paneer. In this dish the gravy is prepared usually with butter (makhan), tomatoes, cashews or cream. Spices such as red chili powder and garam masala are also used to prepare this gravy.It is sweet and less spicy . But extremely tasty because of the various spices used to make it.Now let's get to the ingredients and recipe.
